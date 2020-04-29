@@ -1,0 +1,1 @@
+# proiect_sincretic1
